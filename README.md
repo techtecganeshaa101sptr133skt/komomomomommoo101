@@ -1,1 +1,1 @@
-mwhehehheehehe
+<p><code>mwhehehheehehe</code></p>
